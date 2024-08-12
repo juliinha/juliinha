@@ -3,8 +3,8 @@
 - atualmente estou apredendo: a mexer no github
 - como chegar até mim: @_juuks.zs1
 - pronomes: julihha 
-- curiosidade: quero ter uma cobra 
-- 
+- curiosidade: quero conhecer vários países  
+  
 
 <!---
 juliinha/juliinha is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
