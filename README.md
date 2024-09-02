@@ -1,9 +1,9 @@
 - oi, meu nome é Júlia 
 - estou interessada em: conhecer coisas novas
 - atualmente estou apredendo: a mexer no github
-- como chegar até mim: @_juuks.zs1
+- como chegar até mim: insta @_juuks.zs1
 - pronomes: julihha 
-- curiosidade: quero conhecer vários países  
+- curiosidade: quero conhecer vários países e ter conhecimentos sobres diversas culturas 
   
 
 <!---
