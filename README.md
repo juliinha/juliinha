@@ -1,5 +1,5 @@
 - oi, meu nome é Júlia 
-- estou interessada em: conhecer coisas novas
+- estou interessada em: em fazer pedagogia, jogar vôlei e aprender mais coisas
 - atualmente estou apredendo: a mexer no github
 - como chegar até mim: insta @_juuks.zs1
 - pronomes: julihha 
